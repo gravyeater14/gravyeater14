@@ -1,10 +1,9 @@
-#### HIIIII u probably came from ponytown ... i'm danielle but u can call me danny , cing , or gravy :3o
-**okkk about MEEE** my prns are she */* he :3o *she* is more preffered but *he* is ok too !!!! i'm kind of good at drawing i guess ... i rlly like cats and dogs aYES theyre so cute like if uy agree XDDDDDDDDDS i hang out around the fnf/STH area (though i dont know anything abt both fandoms HGELPP i just like the spot) but i do go to the undertale area sometimes too !!! 
+![hello stay safee](https://i.pinimg.com/564x/25/48/d9/2548d92fc96bf84f6b7fe926eb7dc1ab.jpg)
 
-**byi ...** — no dni but i will probably hide u if u make me rlly uncomfy or smth . i like walking around the ponytown map when i'm alone (which is literally almost always 😭) i'm usually on idle a lot cuz like i only open the game so i can increase my playtime .. dont ask why i do that i just like having the game open in the background . i forget to change my status sometimes so im rlly sorry if ure trying to start up a convo with me and i don't respond LOL . feel free to like cuddle/kiss/hide me or wtv i dont rlly mind it . i'm SUPER BAD at keeping a conversation going so it's probably u that's gonna be talking a lot if we're talking to each other HAHHAAHAHAHA i'm offtab most of the time so if u want 2 talk 2 me/ask me something u can whisper me :3o
+> ![heyy look at this](https://gnome.crd.co/assets/images/arrowssb/4c518dda.gif?v=7c5c308b)﹒hello!! this is all for ponytown , if u want to know a few things about __*me*__ , here's my [rentry](https://rentry.co/gr4vy) :3o
 
-here r my rentries , the 1st one explains what my statuses mean and the 2nd one is a little introduction !!! like byi dni and stuff .. i mean i know i already put a **byi** here but thats just for ponytown kekw
+㊀ = no **dni** except [basic dni criteria](https://basic-dni-criteria-list.carrd.co/)﹐ but i will hide u if i feel like it ; ☆
 
-— https://rentry.co/may0 ﹐https://rentry.co/gr4vy ﹒![hei](https://gnome.crd.co/assets/images/pinksb/857551c3.png?v=7c5c308b) ; ✧˖°
+㊁ = **b4 u int rite here!!** i'm afk most of the time when i'm playing but i do tab in sometimes so if u want 2 ask me something _/_ talk 2 me feel free to whipser ! u can cuddle/kiss/boop me or wtv idrm﹐ i'm not the best when it comes to keeping up a conversation﹐ here's a rentry abt what my statuses mean https://rentry.co/may0 i do forget to change them sometimes ... i'm always on the safe server ( not 18+ cause like i'm not old enough 4 that server lol﹐ can't be bothered to change the birthd8 i used ) but i will change it if u want me to go there w/ u ( friends only ofc lol ) i don't know about most things so u might have 2 explain somethings ure talking abt 2 me 
 
-[©](https://gnome.crd.co/)﹒![carrd i used to get the little images in here](https://gnome.crd.co/assets/images/kaomojisb/5a790760.gif?v=7c5c308b) *!*
+[©](https://gnome.crd.co/)﹒![carrd i used to get the little images in here](https://gnome.crd.co/assets/images/kaomojisb/f2460783.gif?v=7c5c308b)
