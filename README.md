@@ -1,6 +1,6 @@
 ![hello stay safee](https://i.pinimg.com/564x/25/48/d9/2548d92fc96bf84f6b7fe926eb7dc1ab.jpg)
 
-> ![heyy look at this](https://gnome.crd.co/assets/images/arrowssb/4c518dda.gif?v=7c5c308b)﹒hello!! this is all for ponytown , if u want to know a few things about __*me*__ , here's my [rentry](https://rentry.co/gr4vy) :3o
+> ![heyy look at this](https://gnome.crd.co/assets/images/arrowssb/4c518dda.gif?v=7c5c308b)﹒hello!! this is all for ponytown , if u want to know a few things about __*me*__ , here's my [rentry](https://rentry.co/ge14) :3c
 
 ㊀ = no **dni** for pt except [basic dni criteria](https://basic-dni-criteria-list.carrd.co/)﹐ but i will hide u if i feel like it ; ☆
 
