@@ -3,9 +3,12 @@ just go click the link on my profile i cant be bothered to type out info about m
 
 　
  
-basic status info　![test](https://gnome.crd.co/assets/images/kaomojisb/54902227.gif?v=7c5c308b)
+basic status info
 
 **IDLE** - offtab/afk, common knowledge　**DNI** - playing roblox or drawing　**ONLINE** - feel free to talk to me
+
+bean sits next to me sometimes, i do not associate with them whatsoever. i just couldn't care less about telling them to fuck off and stop coming up to me acting like i'm their friend. 
+
  
  
 
