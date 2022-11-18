@@ -7,7 +7,6 @@ basic status info
 
 **IDLE** - offtab/afk, common knowledge　**DNI** - playing roblox or drawing　**ONLINE** - feel free to talk to me
 
-bean sits next to me sometimes, i do not associate with them whatsoever. i just couldn't care less about telling them to fuck off and stop coming up to me acting like i'm their friend. not saying i hate them or anything i just don't want people thinking i'm associated with them considering there are a few people who dislike bea (i don't know what they did to be treated like that by others)
 
  
  
