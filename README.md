@@ -1,4 +1,4 @@
-just go click the link on my profile i cant be bothered to type out info about myself
+i rarely go to the 18+ server, and when i do im usually at  either the undertale area or hazbin/helluva area
 
 
 　
