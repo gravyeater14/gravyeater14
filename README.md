@@ -1,7 +1,5 @@
 i need to work on my sleep schedule 
 
-
-　
  
 basic status info
 
