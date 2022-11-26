@@ -1,4 +1,4 @@
-i rarely go to the 18+ server, and when i do im usually at  either the undertale area or hazbin/helluva area
+i need to work on my sleep schedule 
 
 
 　
