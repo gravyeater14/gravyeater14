@@ -1,6 +1,3 @@
-i need to work on my sleep schedule 
-
- 
 basic status info
 
 **IDLE** - offtab/afk, common knowledge　**DNI** - playing roblox or drawing　**ONLINE** - feel free to talk to me
