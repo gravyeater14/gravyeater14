@@ -1,4 +1,4 @@
-⠀⠀⠀ basically just my rentry but it has less stuff
+basically just my rentry but it has less stuff + different
 
 ![te](https://cdn.discordapp.com/attachments/909681949709312053/1077035301777711135/image.png)
 
