@@ -1,6 +1,6 @@
-basically just my rentry but it has less stuff + different
+![te](https://cdn.discordapp.com/attachments/909681949709312053/1080169360590643200/image.png)
 
-![te](https://cdn.discordapp.com/attachments/909681949709312053/1077035301777711135/image.png)
+⠀⠀⠀⠀⠀⠀⠀ always offtab, rarely playing
 
 ⠀⠀⠀⠀⠀![tolfaceheight](https://cdn.discordapp.com/attachments/909681949709312053/1077034155050799174/image.png)
 
