@@ -1,3 +1,1 @@
-i got the hat wrong sorry guys
-
-![piiiiiiiizzaaaaaaaaa](https://cdn.discordapp.com/attachments/909681949709312053/1112612710367101041/pizzaaaa.png)
+![bugbo](https://cdn.discordapp.com/attachments/789547412137181265/1154990456464228372/image.png)
